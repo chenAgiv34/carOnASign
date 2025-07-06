@@ -8,3 +8,6 @@ The development of this system is intended to improve the experience of using a 
 
 Further details about the project can be found at the following link👇🏼
 https://drive.google.com/file/d/1dEiJnvxwi9Q9rq-fph4JaaIvqZo2gc0M/view?usp=sharing
+
+For a short video, click on the following link👇🏼
+https://drive.google.com/file/d/1aSHw_WEhFEmOoKq06wkn8xOoBwqFTXfI/view?usp=sharing
